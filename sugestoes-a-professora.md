@@ -1,0 +1,1 @@
+1. Creio que aulas com videos sao extremamente interessantes, porem, muitas aulas assim torna este recurso cansativo. Uma solucao seriam aulas a distancia com producao textual a partir de videos sugeridos.

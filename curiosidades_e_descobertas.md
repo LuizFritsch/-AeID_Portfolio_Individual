@@ -1,0 +1,2 @@
+1. Utilizei uma ferramenta para descobrir se as cores que eu iria utilizar em um trabalho tinham um contrase bom para o publico em geral. Descobri tambem que a utilizacao de preto e branco eh aconselhada, porem sem grandes variacoes (exemplo ruim para epileticos: <http://abre.ai/trabalho_infografico>).
+2. "being brave is not meant to be easy", no video de ted talk, sam demonstra toda sua bravura, mesmo tendo progeria. (<https://www.youtube.com/watch?v=36m1o-tM05g>)
